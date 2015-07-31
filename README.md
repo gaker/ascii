@@ -47,7 +47,6 @@ A collection of ASCII art I use frequently to express emotion/troll
     ( °_°)‿‑●‑●
     (‑●‑●)>
     
-
     |(•◡•)|╯╰(❍ ᴥ ❍ ʋ)
 
 	(;,;)
@@ -58,6 +57,10 @@ A collection of ASCII art I use frequently to express emotion/troll
 	:€
 	
 	\,,/(^_^)\,,/
+
+    (̿▀̿ ̿Ĺ̯̿̿▀̿ ̿)
+    
+    | (• ◡•)|/ \(❍ᴥ❍ʋ) 
 
     ($¿$)
     (ಠ¿ಠ)
