@@ -7,6 +7,7 @@ A collection of ASCII art I use frequently to express emotion/troll
     (╯°□°）╯︵ ┻━┻  
     (ノಠ益ಠ)ノ彡┻━┻  
     (╯°□°）╯︵ sıɥʇ  
+    (╯°□°）╯︵ ǝpou  
     ┬─┬ノ( º _ ºノ)  
     (╯°□°）╯︵ ╯(.□.╯)  
     (╯°□°)╯/(.□. \）  
